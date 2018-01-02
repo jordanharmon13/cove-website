@@ -1,1 +1,3 @@
-# brava-website
+# Cove is coming soon!
+
+Prepare to be amazed.
